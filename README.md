@@ -1,1 +1,0 @@
-readme til portfolio
